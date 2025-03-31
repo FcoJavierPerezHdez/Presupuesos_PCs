@@ -1,4 +1,4 @@
-![header](https://cashconverters.es/es/es/oportunidades/images/2021/02/01_img_procesadores.jpg)
+![Presupuesos_PCs](imagen.jpg)
 
 # Presupuesto Nº1 AMD
 
